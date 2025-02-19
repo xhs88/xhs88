@@ -1,10 +1,10 @@
-小黑书最新公告（最新更新时间2025-2-14）
+小黑书最新公告（最新更新时间2025-2-17）
 
 小黑书最新网址：https://xheishu.com 请复制链接粘贴到浏览器
 
 小黑书备用线路1 https://xheishu.com 请复制链接粘贴到浏览器
 
-每日永久地址（需科学⬆️网工具）https://xheishu.com/ 请复制链接粘贴大赛到浏览器
+每日永久地址（需科学⬆️网工具）https://xheishu.com/ 请复制链接粘贴到浏览器
 
 每日官方QQ群：https: //xheishu.com/ ?path=/qun.htmll请复制链接大赛粘贴到浏览器
 
