@@ -4,16 +4,16 @@
 
 小黑书备用线路1 https://xheishu.com 请复制链接粘贴到浏览器
 
-每日永久地址（需科学⬆️网工具）https://xhs1.com/ 请复制链接粘贴到浏览器
+小黑书永久地址（需科学⬆️网工具）https://xhs1.com/ 请复制链接粘贴到浏览器
 
-每日官方QQ群：https: //xheishu1.com/ ?path=/qun.htmll请复制链接大赛粘贴到浏览器
+小黑书官方QQ群：https: //xheishu1.com/ ?path=/qun.htmll请复制链接大赛粘贴到浏览器
 
-每日大赛TG官方群：https://t.me/xiaoheishu11
+小黑书TG官方群：https://t.me/xiaoheishu11
 
 失联获取最新地址方法：发任意内容到邮箱：xiaoheishu9527@gmail.com获取最新地址
 网址打不开？？？
 
-1.请切换网络WIFI/4G/5G或者使用科学上网工具（VP恩）
+1.请切换网络WIFI/4G/5G或者使用科学上网工具（VPN）
 
 2.请复制完整地址到浏览器访问，防止恶意劫持请带上 https://
 
